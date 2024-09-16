@@ -1,4 +1,4 @@
-                                                      FALTA DE ACESSIBILIDADE PCD
+                                                FALTA DE ACESSIBILIDADE PCD
 
 A falta de acessibilidade para pessoas com deficiência (PCD) limita sua participação plena na sociedade, restringindo o acesso à serviços, educação e trabalho.
 Barreiras físicas, como ausência de rampas e sinalização adequada, somam-se à falta tecnologias assistivas. Além disso, a carência de políticas inclusivas e conscientização da população agrava essa exclusão.
